@@ -1,1 +1,1 @@
-architecture board - https://miro.com/app/board/uXjVLn8PMq4=/
+architecture board - [https://miro.com/app/board/uXjVLn8PMq4=/](https://miro.com/welcomeonboard/NHZSNnVzNDhTdnRwbGpZNlFySHNvWFFBRFFUQS9ReFpEZldXd1BlMUJMbkhoQ3MxbzlqTE9TNW95WFZ2UVVWbzhvbjJIZmNJNlVQenM0eVY5aDFDUnVMcXpRRUJaYWVGTTlWV2IvU1BSaElXV09ZTDBzNFhJKzBEUEdEVnltUTghZQ==?share_link_id=942069148227)
